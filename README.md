@@ -1,3 +1,3 @@
 [# XMLSEO.RU
-XMLSEO.RU](https://xmlseo.ru/?ref=2137
+XMLSEO.RU](https://xmlseo.ru
 XMLSEO сервис купли-продажи Яндекс.XML лимитов и туннелирования Yandex и Google выдачи)
